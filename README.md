@@ -18,4 +18,4 @@
 结语  
 通过在线视频平台观看日本AV，已经成为了许多观众的日常选择。选一个可靠、安全的平台，可以让你享受到最优质、无忧的观影体验。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/nff4046866/xyzav10)</span>
